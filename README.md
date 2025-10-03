@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>The second Season of Cherry SMP<br><br>🌱 I’m currently learning <br>Java and Python.<br><br>💬 Ask me about <br>European Law, German Law, Minecraft Modpack Creation, Start-Ups.<br><br>⚡ Fun fact<br>Open-Pac-Claims has an incredibly long config file, and as a code noob who knew absolutely nothing about code.<br>I spent 50 hours and more just trying to find one stupid bug, and I still haven't found it to this day.<br><br>My biggest challenge is ignoring the control-obsessed bastard in me and leading my team coolly.
+🔭 I’m currently working on<br>The second Season of Cherry SMP<br><br>🍒 🌱 I’m currently learning <br>Java and Python.<br><br>💬 Ask me about <br>European Law, German Law, Minecraft Modpack Creation, Start-Ups.<br><br>⚡ Fun fact<br>Open-Pac-Claims has an incredibly long config file, and as a code noob who knew absolutely nothing about code.<br>I spent 50 hours and more just trying to find one stupid bug, and I still haven't found it to this day.<br><br>My biggest challenge is ignoring the control-obsessed bastard in me and leading my team coolly.
 
 
 ## 🌐 Socials:
